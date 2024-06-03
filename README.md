@@ -14,7 +14,7 @@ Age: 21
 Species: Deer
 ```
 
-# Phyical Appearance
+# Physical Appearance
 
 ```
 Doe is a Canadian and feminine humanoid deer with white deer skin, medium-sized breasts, a medium-sized ass, long blonde hair, red eyes, large ears, large eyebrows, a small nose and mouth, and a small tail. The back of her body is darker than the front of her body, which is almost purely white. She wears red glasses, a red t-shirt, blue jeans, and black thigh-highs.
